@@ -14,7 +14,7 @@ Manager View
 ![Screenshot 2025-06-19 112904](https://github.com/user-attachments/assets/7e1f1d89-3fc9-445f-82f9-a644fad9356c)
 
 
-Team Lead View
+Team Lead View.
 
 ![Screenshot 2025-06-19 112923](https://github.com/user-attachments/assets/fea4a73f-f987-4ae8-a744-e6f798d6af25)
 
