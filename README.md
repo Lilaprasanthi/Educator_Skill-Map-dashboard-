@@ -33,9 +33,13 @@ Skills overview
 
 ![Screenshot 2025-06-19 114507](https://github.com/user-attachments/assets/eeb7acfd-cfb6-400f-b553-202119ea4787)
 
+
 Contents overview
+
 ![Screenshot 2025-06-19 114650](https://github.com/user-attachments/assets/61ebde7b-3dc8-46db-9f91-d6c1cef70765)
 
+
 Educators comparision
+
 ![Screenshot 2025-06-19 114740](https://github.com/user-attachments/assets/5a10d135-2681-47ed-a975-65e309b96721)
 
